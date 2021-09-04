@@ -1,1 +1,1 @@
-# what's going on 6 music
+# automate 6 music
